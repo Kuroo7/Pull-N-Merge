@@ -1,3 +1,1 @@
-## ✨Session taken by : Anvesh Mishra✨
-
-## Contributors:
+Atif Khan
